@@ -1,2 +1,2 @@
 # github-class
-## my stuf cuz i say so
+## my stuff cuz i say so
